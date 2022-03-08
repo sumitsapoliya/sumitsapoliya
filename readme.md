@@ -1,1 +1,1 @@
-Hello, How are you
+In German We say Hallo, Wie Geht's
